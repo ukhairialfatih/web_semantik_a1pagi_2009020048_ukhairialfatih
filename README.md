@@ -1,0 +1,2 @@
+# web_semantik_a1pagi_2009020048_ukhairialfatih
+web semantik
